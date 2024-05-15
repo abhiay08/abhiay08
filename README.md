@@ -5,7 +5,7 @@
 -  I Will Not Tell About My Work.
 - As You Will HAppy When You Will See My Work. 
 -
-- 📫 How to reach me ...on instagram [https://www.instagram.com/cdt.abhiay07/]
+- 📫 How to reach me ...
 - You Can Follow Me On Various Social Media Sites...
 
 <!--
